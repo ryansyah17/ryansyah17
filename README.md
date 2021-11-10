@@ -6,7 +6,7 @@
 
 ## :boy: about me
 
-hello!, my name **Ryansyah Putra**, i live in indonesia at Padang.
+hello!, my name **Ryansyah Putra**, i live in indonesia at West Sumatera.
 
 ## talk to me
 
